@@ -1,0 +1,2 @@
+# DW_RS2022
+Scrip_ BD  REDSOCIAL 
